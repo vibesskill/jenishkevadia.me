@@ -1,1 +1,1 @@
-# blog.1amstudios.com
+# jenishkevadia.me
